@@ -1,0 +1,1 @@
+# Jogo-Genero-Estudio-Publicadora
